@@ -1,1 +1,1 @@
-ini buat ayang t
+ini buat Tuan Putri
